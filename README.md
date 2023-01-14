@@ -1,2 +1,2 @@
 # ubantu
-https://funny-halva-bd7bbe.netlify.app/
+Https://sex.com
